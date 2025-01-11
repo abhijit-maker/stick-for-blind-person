@@ -1,0 +1,1 @@
+# stick-for-blind-person
